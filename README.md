@@ -1,2 +1,5 @@
-# GBC-ddd
-asdasdasasdasdjkashdka
+안녕하세여 
+반갑습니다
+
+
+ㅁㄴㅇㅁㅇㅁㄴㅇㅁㄴㅇ
